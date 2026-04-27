@@ -1,5 +1,5 @@
-Here is AncauqL.
+Here is **AncauqL**.
 
-Pronounced: /ˈæn.kɔː.kjuː.el/
+Pronounced: **/ˈæn.kɔː.kjuː.el/**
 
-Less tether, more ether.
+*Less tether, more ether.*
