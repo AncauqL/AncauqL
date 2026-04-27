@@ -2,4 +2,4 @@ Here is AncauqL.
 
 Pronounced: /ˈæn.kɔː.kjuː.el/
 
-Less meaning, more freedom.
+Less tether, more ether.
